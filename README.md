@@ -76,3 +76,6 @@
 - Grouplove
 - Bombay Bicycle Club
 - Belle & Sebastian
+- Tokyo Police Club
+- Los Campesinos!
+- Interpol
