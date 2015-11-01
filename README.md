@@ -46,7 +46,33 @@
 - The Killers
 - The Fratellis
 - Bloc Party
-- Depeche Mode
-- Pink Floyd
-- Tricky
-
+- Django django
+- Tame Impala
+- Neu!
+- Ratatat
+- Modest Mouse
+- Angus and Julia Stone
+- Red Hot Chili Peppers
+- System of a Down
+- Dredg
+- Nas
+- Incubus
+- Supertramp
+- N.E.R.D.
+- Led Zeppelin
+- LCMDF
+- TV on the Radio
+- Seether
+- 3 doors down
+- Coheed and Cambria
+- Silversun Pickups
+- The Darkness
+- Metric
+- CAN
+- Katatonia
+- St Lucia
+- STRFKR
+- Mew
+- Grouplove
+- Bombay Bicycle Club
+- Belle & Sebastian
