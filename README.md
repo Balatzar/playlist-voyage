@@ -85,3 +85,4 @@
 - The Doors
 - Sweet Smoke
 - Toto
+- Gorillaz
