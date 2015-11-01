@@ -1,4 +1,4 @@
-# Playlist Yoyage
+# Playlist Voyage
 
 #### Pour l'instant on met juste des noms d'artistes
 
