@@ -26,3 +26,23 @@
 - A Perfect Circle
 - Kaiser Chiefs
 - The DO
+- Weezer
+- Kings of Leon
+- Caravan Palace
+- Afro Celt Sound System
+- Peter Gabriel
+- Police
+- Creedence Clearwater Revival
+- Deep Purple
+- Ten Years After
+- Smashing Pumpkins
+- Audioslave
+- Rage Against The Machine
+- Arcade Fire
+- The Vaccines
+- Wolfmother
+- Garbage
+- Metronomy
+- The Killers
+- The Fratellis
+- Bloc Party
