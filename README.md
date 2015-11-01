@@ -46,3 +46,7 @@
 - The Killers
 - The Fratellis
 - Bloc Party
+- Depeche Mode
+- Pink Floyd
+- Tricky
+
