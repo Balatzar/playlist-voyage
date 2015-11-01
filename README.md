@@ -79,3 +79,9 @@
 - Tokyo Police Club
 - Los Campesinos!
 - Interpol
+- Depeche Mode
+- Tricky
+- Pink Floyd
+- The Doors
+- Sweet Smoke
+- Toto
