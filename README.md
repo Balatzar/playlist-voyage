@@ -86,3 +86,8 @@
 - Sweet Smoke
 - Toto
 - Gorillaz
+- Massive Attack
+- Portishead
+- Queen
+- Renaud
+- Matmatah
