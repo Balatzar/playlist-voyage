@@ -11,3 +11,18 @@
 - Santogold
 - The knife
 - Foals
+- Opeth
+- Alt-J
+- Noir Désir
+- Mano Negra
+- Midlake
+- Deftones
+- Tool
+- FFF
+- Biffy Clyro
+- Radiohead
+- Nine Inch Nail
+- Linkin Park
+- A Perfect Circle
+- Kaiser Chiefs
+- The DO
